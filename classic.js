@@ -13,7 +13,7 @@
   whiskeysockets (Baileys)
   Thunder X7 (Inspirate)
   Pak Tzy (Inspirate)
-  ♥️ ありがとう
+  ♥️ ありがとう 
                  >
 */
 
